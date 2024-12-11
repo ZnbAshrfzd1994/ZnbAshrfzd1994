@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Zeinab Ashrafzadeh
+- 👋 Hi, I’m @Zeinab Ashrafzadeh. I am medical doctor.
 - 👀 I’m interested in nueroscience, Music and books
 - 🌱 I’m currently learning How to study a systematic review. Painting and Playing music.
 - 💞️ I’m looking to collaborate on neuroscience.
